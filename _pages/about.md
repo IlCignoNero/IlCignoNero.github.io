@@ -3,6 +3,16 @@ permalink: /about/
 title: "About"
 ---
 
-Tempor velit sint sunt ipsum tempor enim ad qui ullamco. Est dolore anim ad velit duis dolore minim sunt aliquip amet commodo labore. Ut eu pariatur aute ea aute excepteur laborum. Esse ea esse excepteur minim mollit qui cillum excepteur ex dolore magna. Labore deserunt fugiat incididunt incididunt sint ea. Consequat dolore aute laboris quis proident quis non et est consectetur ex eiusmod sit culpa.
+Sono solo un funambolo delle parole. Solitario e riflessivo. Pazzo per i piu'.
 
-Cupidatat ea do et in excepteur in. Ad nostrud ut est esse eu duis ea sunt eiusmod. Aliquip tempor veniam sint elit fugiat. Velit incididunt laboris amet incididunt labore dolore irure velit excepteur commodo deserunt laborum. Consectetur eu fugiat veniam veniam Lorem labore magna eiusmod. Ea occaecat reprehenderit pariatur consectetur minim labore ut aliquip.
+Scrivo per dire quello che solitamente tengo dentro.
+
+Scrivo per comprendere, gli altri, il mondo, me stesso. Scrivo perche' ne ho bisogno.
+
+Scrivo per non lasciare che l'oscurita' che mi si agita dentro mi inghiottista.
+
+Ho bisogno di scrivere come ho bisogno di respirare per rimanere in vita.
+
+Non voglio insegnare nulla ne' pretendo che qualcuno mi ascolti, scrivo perche' ne ho bisogno.
+
+Questa e' soltanto l'ennesima storia su internet. La mia.
